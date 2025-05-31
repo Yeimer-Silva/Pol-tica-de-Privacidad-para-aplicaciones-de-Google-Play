@@ -1,1 +1,2 @@
-# Pol-tica-de-Privacidad-para-aplicaciones-de-Google-Play
+# Política de Privacidad para aplicaciones de Google Play
+---
